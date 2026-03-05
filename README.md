@@ -1,4 +1,4 @@
-<img width="1918" height="1017" alt="t5" src="https://github.com/user-attachments/assets/8b7731a1-ab83-47e7-be8f-23ad88cbf03f" /># 2kt
+# 2kt
 1 задание
 <img width="1918" height="1020" alt="t1" src="https://github.com/user-attachments/assets/74a83676-b85e-41a3-b52f-27ffd3de3ce1" />
 2 задание
